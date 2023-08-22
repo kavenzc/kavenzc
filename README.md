@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Kevin (also known as Kaven or @kavenzc)
-- 👀 I’m new in this, and looking forward to learning! 
+- 👋 Hi, I’m Kaven (also known as Kevin or @kavenzc)
+- 👀 I’m new here... looking forward to learning more. 
 - 📫 You can reach me via kavenzc @ gmail .com or find me in linkedIn
 
 <!---
