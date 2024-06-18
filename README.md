@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kaven (also known as Kevin or @kavenzc)
+- 👋 Hi, I’m Kaven (@kavenzc)
 - 👀 I’m new here... looking forward to learning more. 
 - 📫 You can reach me via kavenzc @ gmail .com or find me in linkedIn
 
