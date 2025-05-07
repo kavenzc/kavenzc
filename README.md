@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kaven (@kavenzc)
-- 👀 I’m new here... looking forward to learning more. 
+- 👀 This is a new github account for my PG role. 
 - 📫 You can reach me via kavenzc @ gmail .com or find me in linkedIn
 
 <!---
